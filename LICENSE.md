@@ -1,4 +1,4 @@
-# 
+# Official new token sniper bot add-ons for Mac OS | Turbo new token sniper bot add-ons for PC Windows. Featuring order execution and API integration — optimized for maximum performance on every platform.
 
 
 
